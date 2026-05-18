@@ -67,7 +67,7 @@ AI-powered talent and learning ecosystem focused on accelerating African tech ta
 ## 🌍 Connect With Me
 
 - LinkedIn: www.linkedin.com/in/nsirimsamueleberechi
-- Email: nsirimsamuel17gmail.com
+- Email: nsirimsamuel17@gmail.com
 
 ---
 
